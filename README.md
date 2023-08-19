@@ -1,6 +1,6 @@
   I dont know what I'm doing here.
   
-  I guess I'm just having fun trying to figure out what the fuck I life.
+  I guess I'm just having fun trying to figure out what the fuck is life.
   
   Besides that I don't actually know how to code.
 
